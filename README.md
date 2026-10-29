@@ -3,3 +3,17 @@
 Um grupo de jovens estava planejando ir a uma festa de Halloween. Todos estavam ansiosos e já haviam preparado suas fantasias. As amigas Lia e Mani, que iriam fantasiadas de Ghostface e Katherine Pierce, estavam muito felizes, pois seria o primeiro Halloween delas juntas. Apesar de algumas complicações com o pai de Mani, no final tudo deu certo.
 Com a chegada do grande dia, a ansiedade do grupo só aumentava. Porém, nenhum deles imaginava o que os aguardava naquela noite. O que deveria ser uma noite de alegria, diversão e boas lembranças acabou se transformando em uma experiência traumática, que marcaria suas vidas para sempre. Desde então, o Halloween se tornou um assunto proibido entre eles. Mas, afinal, o que teria acontecido naquela noite?
 Marina e helo, as duas primas, foram para a casa de Lia passar a tarde e se arrumarem juntas, elas tomaram banho de piscina, jogaram volei e comeram sorvete. De noite elas comecaram a se arrumar, belo e o dieferson chegaram e aproveitamos para beber um pouco antes de ir, no caminho eles escutavam alguns barulhos mas ignoravam, entraram na festa e dancaram muito. Na hora de ir para casa, foram andando e conversando, eles riam de tudo, ate que escutaram um grito e resolveram ir ver. Eles chegaram em uma caverna escura e resolveram entrar para ver, eles viram uma sombra e todo mundo comecou a correr. Marina bateu o pe em uma pedra e acabou torcendo ele, Lia e Helo foram ajuda-la mas era tarde demais, a sombra se transformou em uma mulher gigante com cabelos longos quase encostando no chao. Marina, Lia e Helo gritaram e correram, o que sera que vai acontecer?
+
+As três correram desesperadas, enquanto a mulher misteriosa vinha atrás delas. Marina, mesmo com o pé machucado, tentava acompanhar as amigas. De repente, elas encontraram Belo e Dieferson, que, ao verem o desespero das meninas, começaram a correr também.
+
+Depois de muito correr, finalmente chegaram à estrada, mas, quando olharam para trás, a mulher havia desaparecido. Todos ficaram em silêncio, tentando entender o que tinham acabado de presenciar.
+
+Ao chegarem em casa, decidiram que nunca mais falariam sobre aquela noite. Porém, antes de dormirem, MANI recebeu uma mensagem de um número desconhecido. Ao abrir, viu uma foto dos seis dentro da caverna. Abaixo da imagem havia apenas uma frase:
+
+"Vocês não deveriam ter saído de lá."
+
+Mani tentou ligar para as amigas, mas, antes que pudesse fazer isso, ouviu três batidas na janela.
+
+Quando olhou, viu a mesma mulher parada do lado de fora.
+
+E foi assim que aquela noite de Halloween se tornou um pesadelo que nenhum deles conseguiria esquecer.
